@@ -1,0 +1,2 @@
+# jodent-tekoper
+pituber momen
